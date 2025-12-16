@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **Go, Java, Performance Programming**
 
-- 📫 How to reach me **pongaskornkit@gmail.com**
+- 📫 If you need to contact me, So Here! (Feel free to reply!) **pongaskornkit@gmail.com**
 
 - ⚡ Fun fact **I think I have a good vibe, If we have chance to join together**
 
